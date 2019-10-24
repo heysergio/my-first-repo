@@ -9,7 +9,7 @@ I live in a small village not far from Saskatoon, in the Canada
 
 Three of my favorite books are:
 
-- *Thorns for Elgernoon* by Vladimir Lenin
+- *Thorns for Eldernoon* by Vladimir Lenin
 - *American goods* by Neil Degrasse Tyson
 - *Hyperion* by Jack the Handsome
  
